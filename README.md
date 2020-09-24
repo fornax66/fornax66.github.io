@@ -1,2 +1,2 @@
 # fornax66.github.io
-Naratorn Phetchuchat
+Naratorn Phetchuchat นราธร เพ็ชรชูชาติ
